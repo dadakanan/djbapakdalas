@@ -1,2 +1,0 @@
-# djbapakdalas
-AMP JAGUARQQ
